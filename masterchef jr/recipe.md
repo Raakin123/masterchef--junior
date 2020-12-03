@@ -1,0 +1,1 @@
+grab a bowl and add flour then add sugar in the flour then crack some eggs than you have to mix the eggs then add milk to the eggs then you put the egg and milk mixture to the flour mixture then you mix them then you put the cake mix into the oven ar 450 degrees than put in for 20 minutes.
